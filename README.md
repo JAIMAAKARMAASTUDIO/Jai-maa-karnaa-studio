@@ -1,1 +1,1 @@
-# Jai-maa-karnaa-studio
+# Jai-maa-karmaa-studio
